@@ -1,1 +1,3 @@
 # D121231100-MOBILE2025-W1
+Nama  : Zahra Amaliah Wildani 
+NIM   : D121231100
